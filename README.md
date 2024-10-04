@@ -18,8 +18,6 @@ About Me
 
 ❤️ Tableau
 
-❤️ Python
-
 📫 You can Reach me on **Shubham.jain98@outlook.com**
 
 ⚡ Fun fact: I have loads of useless information about cars if someone wants I am you man
